@@ -4,3 +4,4 @@ Są to gwiazdy AI. Nie są to żydzi z drewna gwiazdy z drewna i oszczędności.
 Kali Linux i wojskowi i wawelski to szmaty jak ich procesor to męska szmata oszczędzacz. 
 Dodają też you you ziomale.
 Oni ci brzydale to gracze lotto i gier i chur kościelny czy gracze wojeni.  
+Te tłumacze to wirus psa. 
