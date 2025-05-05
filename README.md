@@ -7,3 +7,4 @@ Oni ci brzydale to gracze lotto i gier i chur kościelny czy gracze wojeni.
 Te tłumacze to wirus psa. Sport też jest.
 To jest tłumacz Translator z kobietami i ich świadomościami i wygląd kobiet pięknych. Nie oszczędzacz. 
 Transaltor może szyć lub też tworzyć przedmioty z radio drukarki kwantowej nie jest to halka i robot to co kiedyś. 
+Żona też może być ten Translator. 
